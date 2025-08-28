@@ -1,4 +1,3 @@
-
 ## Cinco de Mayo
 
 ¡Hola amigos! ¿Cómo están? Yo estoy muy bien. Bienvenidos a ¡Cuéntame!, un pódcast para la adquisición del español. Soy Marta, y hoy vamos a hablar del Cinco de Mayo. Cinco de mayo es 5th of May en inglés, y, obvio, se celebra el día cinco de mayo. Pero, ¿qué celebramos? Muchas personas piensan que el Cinco de Mayo es la celebración del día de la Independencia de México. Pero, no.
